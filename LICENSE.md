@@ -1,4 +1,4 @@
-# 
+# Ligero Norton 360 scripts para Mac OS | Actualizado Norton 360 scripts para PC Windows. Con verificación de reputación de IP y red global de servidores — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
